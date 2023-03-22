@@ -2,6 +2,6 @@
 
 ## Leonardo Mendonça
 
-- email: leonardomm008@gmail.com
+- Email: leonardomm008@gmail.com
 - 23 Anos
 - CNH A/B
